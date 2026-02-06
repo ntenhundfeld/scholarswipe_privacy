@@ -1,0 +1,1 @@
+# scholarswipe_privacy
